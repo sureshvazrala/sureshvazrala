@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sureshvazrala
-- 👀 I’m interested to learn 
+- 👀 I’m interested to learn new things
 - 🌱 I’m currently working on 5G/NR
 - 📫 Reach me suresh.vazrala@gmail.com
 
